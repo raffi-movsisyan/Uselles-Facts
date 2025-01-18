@@ -1,1 +1,1 @@
-www.uselessfacts.com
+www.useless-facts.com
